@@ -181,6 +181,7 @@ I've noticed a few things already  ¬DUDE you're literally 11 you CANNOT be talk
 
 
 New art! By me
+
 A recent art! 09-22-25
 ![image alt](https://github.com/Mequott/Mequott/blob/c37256099c1a078f98c6a8d1deea412db3554eef/Illustration_edit_2387932714434957.png) 
 
