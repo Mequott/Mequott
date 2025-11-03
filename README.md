@@ -1,5 +1,4 @@
-![image alt](https://github.com/Mequott/Mequott/blob/7ee0a23afa0af92c68d998f4696542dff3ace9a1/Untitled1812_20250930214404.png) 
-
+![image_alt](https://github.com/Mequott/Mequott/blob/075c364b936daac57ee5551c5e53cc2ee7e517fe/Untitled110_20251103165857.png) 
 . ㅤ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
 　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　                         𓈒    🗝    ȶɛɖ¹ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ɛɨʀʟʏֆ²    𝅄     🪻     ۪   ݁   𓈒　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦ 
 
