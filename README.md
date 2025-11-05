@@ -9,4 +9,4 @@
 Last updated November 5, 2025
 
 
-- contacting ex friends is a waste of time for me so consider this as my "No I will not int w any ppl I've already lost", I won't do anything if I receive news of about me contacting them bc yk I ain't got no time for that, it's as simple as that
+- contacting ex friends is a waste of time for me so consider this as my "No I will not int w any ppl I've already lost", I won't do anything if I receive news of about me contacting them bc yk I ain't got no time do do allat, it's as simple as that
