@@ -6,3 +6,5 @@
 
 ㅤㅤ ۪      𝅄     ꒰    ꒱    ۪   ݁  Without Me - Macdemarco ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:47    ݁   ۪    ꥟ 
 
+
+Rarely online in pt now, much more focused on IRL, contacting ex friends is a waste of time for me so consider this as my "No I will not int w anyone ppl I've already lost" 
