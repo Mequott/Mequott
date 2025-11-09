@@ -4,7 +4,7 @@
 　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　                         𓈒    🎣    ȶɛɖ¹ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ɛɨʀʟʏֆ²    𝅄     🦐     ۪   ݁   𓈒　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦ 
 
 
-ㅤㅤ ۪      𝅄     ꒰    ꒱    ۪   ݁  Without Me - Macdemarco ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:47    ݁   ۪    ꥟ 
+ㅤㅤ ۪      𝅄     ꒰    ꒱    ۪   ݁  I Can't Afford To Miss You In This Economy - Adjust The Sails ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• **0:40**    ݁   ۪    ꥟ 
 
 Last updated November 5, 2025
 
