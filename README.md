@@ -9,7 +9,7 @@
 Last updated November 5, 2025
 
 
-- contacting ex friends is not worth my time so consider this as my "No I will not int w any ppl I've already lost", I won't do anything if I receive news of about me 'contacting' them bc yk I ain't got no time do do allat, it's as simple as that
+- contacting ex friends is not worth my time so consider this as my **"No I will not int w any ppl I've already lost"**, I won't do anything if I receive news of about me 'contacting' them bc yk I ain't got no time do do allat, it's as simple as that
 
 
 ![image alt](https://github.com/Mequott/Mequott/blob/58e62c987ac2220c7cf5d8541018ed09654ddfe9/lv_0_20251103075803.gif) 
