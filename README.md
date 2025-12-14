@@ -6,6 +6,11 @@
 
 ㅤㅤ ۪      𝅄     ꒰    ꒱    ۪   ݁  Between Your Band and the Other Band - Tigers Jaw ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• **1:29**    ݁   ۪    ꥟ 
 
+
+ 　　　　 ˚　.˚　　　　　INFP-T
+I'm quite a shy person And I rarely int first! (* ´ ﹃｀*)  　　　　 ˚　.˚　　　　　
+
+
 Last updated November 5, 2025
 
 
