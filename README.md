@@ -5,21 +5,20 @@
 　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　                         𓈒    🎣    ȶɛɖ¹ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ɛɨʀʟʏֆ²    𝅄     🦐     ۪   ݁   𓈒　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦ 
 
 
-ㅤㅤ ۪      𝅄     ꒰    ꒱    ۪   ݁  Between Your Band and the Other Band - Tigers Jaw ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• **1:29**    ݁   ۪    ꥟ 
-
+ㅤㅤ ۪      𝅄     ꒰    ꒱    ۪   ݁  Terranova — Janina ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• **1:20**    ݁   ۪    ꥟ 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ͜ ͜𓏼˚̣̣̣⠀Terranova, I'll find you, I don't mind if you're far away!⠀𔓐𑇓⠀₊⠀˖
+I LOVE ALL OF MY FRIENDS ◞ ྀི 
 
  　　　　 ˚　.˚　　　　　INFP-T
-I'm quite a shy person And I rarely int first! (* ´ ﹃｀*)  　　　　 ˚　.˚　　　　　
+I'm quite a shy person And I rarely int first, I'm willing to befriend anyone hi! (* ´ ﹃｀*)  　　　　 ˚　.˚　　　　　
 
 
-Last updated January 11, 2026
+Last updated April 27, 2026
 
 I only go online when a friend tells me to hop on pt, pretty rare since we mostly play smth else
 
-I love my boyfriend, he makes me feel genuinely happy 
-
 Awesome people!!  
-Cyrus<3, Clyde, Mitsu, Koda, Kyou, Fush, Seven, Zyair, Saw, Elv, Silver, Aple, Kelvi, Vuz, Daph, Skippy, Amaris, Avery, Nort(special oomf on tt) , havu (special oomf on twt and tt) 
+**Cyrus**<3, Clyde, Mitsu, Koda, Kyou, Fush, Zyair, Saw, Elv, Silver, Aple, Kelvi, Vuz, Daph, Skippy, Amaris, Avery, Nort, Havu
 
 
 Too lazy to style and change my github profile! I don't really check my github much anyway! "( – ⌓ – )
