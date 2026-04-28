@@ -11,14 +11,14 @@ I LOVE ALL OF MY FRIENDS ◞ ྀི
 
  　　　　 ˚　.˚　　　　　INFP-T
 I'm quite a shy person And I rarely int first, I'm willing to befriend anyone hi! (* ´ ﹃｀*)  　　　　 ˚　.˚　　　　　
-
+Mostly seen w Mitsu, Fush and Elijah!
 
 Last updated April 27, 2026
 
 I only go online when a friend tells me to hop on pt, pretty rare since we mostly play smth else
 
 Awesome people!!  
-**Cyrus**<3, Clyde, Mitsu, Koda, Kyou, Fush, Zyair, Saw, Elv, Silver, Aple, Kelvi, Vuz, Daph, Skippy, Amaris, Avery, Nort, Havu
+**Cyrus**<3, Clyde, Elijah, Mitsu, Koda, Kyou, Fush, Zyair, Saw, Elv, Silver, Aple, Kelvi, Vuz, Daph, Skippy, Amaris, Avery, Nort, Havu
 
 
 Too lazy to style and change my github profile! I don't really check my github much anyway! "( – ⌓ – )
