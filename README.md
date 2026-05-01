@@ -1,27 +1,37 @@
-![image_alt](https://github.com/Mequott/Mequott/blob/001fc580037461e82e08df2fc3334f88bffa0055/lv_0_20251103075649.gif)
+<img width="2000" height="450" alt="Untitled556_20260501130819" src="https://github.com/user-attachments/assets/861c0b10-6e62-437a-990e-35cf5021d7a0" />
+
+<div align = center>
+
+# 🍓 ${{\color{#b4e9ff}INTRODUCTION}}$ 🍓
+
+${{\color{#Ff90be}୨୧}}$ ${{\color{#c6d1ff}CALL}}$ ${{\color{#f8e7ee}ME}}$ ${{\color{#fdbed6}TED}}$ 
+
+˗ˋˏ ♡ ˎˊ˗ . ${{\color{#e699b9}HE}}$ ${{\color{#ff90be}/}}$ ${{\color{#fda9c0}HIM}}$ 🍰
+
+_
+
+${{\color{#f8e7ee}˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖}}$ ${{\color{#b4e9ff}ＩＮＦＰ-Ｔ}}$ ${{\color{#f8e7ee}˖ ݁𖥔 ݁˖ 𐙚 ˖ ݁𖥔 ݁˖}}$ 
+
+<img width="200" height="202" alt="Untitled554_20260501130242" src="https://github.com/user-attachments/assets/e299bf69-a955-4221-b76f-b9574fb06c0d" />
 
 
-. ㅤ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
-　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　                         𓈒    🎣    ȶɛɖ¹ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ɛɨʀʟʏֆ²    𝅄     🦐     ۪   ݁   𓈒　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦ 
+${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
 
+# ${{\color{#c6d1ff}ART}}$ ${{\color{#f8e7ee}MADE}}$ ${{\color{#e699b9}BY}}$ ${{\color{#ff90be}ME}}$ . ໒꒰ྀི ˶• ╸ •˶ ྀི১
 
-ㅤㅤ ۪      𝅄     ꒰    ꒱    ۪   ݁  Terranova — Janina ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• **1:20**    ݁   ۪    ꥟ 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ͜ ͜𓏼˚̣̣̣⠀Terranova, I'll find you, I don't mind if you're far away!⠀𔓐𑇓⠀₊⠀˖
-I LOVE ALL OF MY FRIENDS ◞ ྀི 
+<img width="768" height="750" alt="Untitled555_20260501130326" src="https://github.com/user-attachments/assets/87a18060-e154-4e69-8450-2d8c7cbab403" />
 
- 　　　　 ˚　.˚　　　　　INFP-T
-I'm quite a shy person And I rarely int first, I'm willing to befriend anyone hi! (* ´ ﹃｀*)  　　　　 ˚　.˚　　　　　
-Mostly seen w Mitsu, Fush and Elijah!
+${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
 
-Last updated April 27, 2026
+# ${{\color{#fda9c0}ＤＮＩ}}$ ${{\color{#b4e9ff}ＬＩＳＴ}}$ . ${{\color{#c6d1ff}໒꒰ྀི -᷅ ⤙ -᷄ ꒱ྀི১}}$
 
-I only go online when a friend tells me to hop on pt, pretty rare since we mostly play smth else
+- ${{\color{#c6d1ff}𝗣𝗥𝗢𝗦𝗛𝗜𝗣𝗣𝗘𝗥𝗦}}$
+- ${{\color{#f8e7ee}𝗗𝗔𝗥𝗞𝗦𝗛𝗜𝗣𝗣𝗘𝗥𝗦}}$
+- ${{\color{#fdbed6}𝗥𝗔𝗖𝗜𝗦𝗧𝗦}}$
+- ${{\color{#fda9c0}𝙋𝙚𝙤𝙥𝙡𝙚}}$ ${{\color{#b4e9ff}𝙬𝙞𝙩𝙝ㅤ𝙣𝙤}}$ ${{\color{#c6d1ff}𝗕𝗢𝗨𝗡𝗗𝗔𝗥𝗬}}$ ${{\color{#f8e7ee}𝗥𝗘𝗦𝗣𝗘𝗖𝗧𝗜𝗡𝗚}}$
 
-Awesome people!!  
-**Cyrus**<3, Clyde, Elijah, Mitsu, Koda, Kyou, Fush, Zyair, Saw, Elv, Silver, Aple, Kelvi, Vuz, Daph, Skippy, Amaris, Avery, Nort, Havu
+${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
 
+${{\color{#f8e7ee}Credits ㅤ toㅤElijahㅤforㅤdaㅤlayoutㅤ editingㅤ andㅤdecoration ! 1! 1!}}$ ໒꒰ྀི๑ᵔ ▾ ᵔ๑꒱ྀིა
 
-Too lazy to style and change my github profile! I don't really check my github much anyway! "( – ⌓ – )
-
-![image alt](https://github.com/Mequott/Mequott/blob/58e62c987ac2220c7cf5d8541018ed09654ddfe9/lv_0_20251103075803.gif) 
-
+<img width="2000" height="450" alt="Untitled556_20260501130826" src="https://github.com/user-attachments/assets/bb8b018e-d24b-4688-aadc-4d80533eab69" />
