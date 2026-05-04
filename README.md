@@ -21,6 +21,8 @@ ${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏�
 
 <img width="768" height="750" alt="Untitled555_20260501130326" src="https://github.com/user-attachments/assets/87a18060-e154-4e69-8450-2d8c7cbab403" />
 
+![image alt](https://github.com/Mequott/Mequott/blob/281a0d016a95974982976919f133a567db7b8a46/Untitled180_20260504135717.png)
+
 ${{\color{#ff90be}﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
 
 # ${{\color{#fda9c0}ＤＮＩ}}$ ${{\color{#b4e9ff}ＬＩＳＴ}}$ . ${{\color{#c6d1ff}໒꒰ྀི -᷅ ⤙ -᷄ ꒱ྀི১}}$
